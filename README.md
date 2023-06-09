@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @garykhan
-- 👀 I’m interested in fighting Gary Gensler
+- 👀 I’m the evil twin of Gary Gensler
 - 🌱 I’m currently learning Jujitsu like Zuck
 - 💞️ I’m looking to collaborate on defeating the SEC
 - 📫 How to reach me garykhan@proton.me
